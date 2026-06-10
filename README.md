@@ -9,7 +9,10 @@ ITS IN SPANISH (cus im mexican lol)
 <img width="1880" height="1033" alt="Captura de pantalla 2026-06-09 194451" src="https://github.com/user-attachments/assets/ab6ae1fa-5a19-4cd2-a244-08d88ffb783a" />
 
 COME SEE IT !!
-i spend 16 hours doing it :,)
+
+https://annaastrs-svg.github.io/HTML-ANNA.github.io/
+
+PLEASEEE I spend 16 hours doing it :,)
 
 HOW IT WORKS??
 
